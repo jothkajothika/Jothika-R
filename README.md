@@ -1,1 +1,1 @@
-# Jothika-R
+# Jothika
